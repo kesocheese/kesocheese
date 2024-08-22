@@ -7,3 +7,7 @@
 <br> pony town's only balanced craftwars overhaul fan
 <br><br> check my links for proper info abt me lmao
 </p>
+
+<p align="center"> 
+  dc : kesocheese_
+</p>
