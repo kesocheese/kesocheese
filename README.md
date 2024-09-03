@@ -7,7 +7,7 @@
 <div align="center">
   pee pee. poo poo.
 <br> pony town's only balanced craftwars overhaul fan
-<br><br> check my links for proper info abt me lmao
+<br><br> pt boundaries + other --> https://rentry.co/arcs-pt-bndrs
 </div>
 
 <div align="center"> 
