@@ -6,8 +6,8 @@
 
 <div align="center">
   pee pee. poo poo.
-<br> pony town's only balanced craftwars overhaul fan
-<br><br> pt boundaries + other --> https://rentry.co/arcs-pt-bndrs
+<br> pts only balanced craftwars overhaul fan
+<br><br> boundaries > https://rentry.co/arcs-pt-bndrs
 </div>
 
 <div align="center"> 
