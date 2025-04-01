@@ -6,10 +6,6 @@
 
 <div align="center">
   gods this is so old bruh
-<br> pts only balanced craftwars overhaul fan
+<br> still pt's only bcwo fan
 <br><br> boundaries > https://rentry.co/arcs-pt-bndrs
-</div>
-
-<div align="center"> 
-  dc : kesocheese_
 </div>
