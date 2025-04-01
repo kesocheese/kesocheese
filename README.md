@@ -5,7 +5,7 @@
 </div>
 
 <div align="center">
-  pee pee. poo poo.
+  gods this is so old bruh
 <br> pts only balanced craftwars overhaul fan
 <br><br> boundaries > https://rentry.co/arcs-pt-bndrs
 </div>
