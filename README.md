@@ -7,5 +7,5 @@
 <div align="center">
   gods this is so old bruh
 <br> still pt's only bcwo fan
-<br><br> boundaries > https://rentry.co/arcs-pt-bndrs
+<br><br> boundaries > https://rentry.co/pt-byf
 </div>
