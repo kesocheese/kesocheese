@@ -9,7 +9,7 @@
 
 <div align="center">
   
-${\color{#9500ff}\text{ㅤrmk wip.ㅤ﹕ㅤisaacㅤ/ㅤdistrict .}}$ 
-<br>${\color{#9500ff}\text{ᴗ №1 allbetter fan.ㅤㅤ}}$ [i.](https://rentry.co/onehat)ㅤ[ii.](https://rentry.co/pt-byf)ㅤ[iii.](https://architect.atabook.org/)
+${\color{#9500ff}\text{　rmk wip.ㅤ﹕　isaac　/　district .}}$ 
+<br>${\color{#9500ff}\text{ᴗ №1 allbetter fan.　　}}$ [i.](https://rentry.co/onehat)ㅤ[ii.](https://rentry.co/pt-byf)ㅤ[iii.](https://architect.atabook.org/)
 </br>
   </div>
