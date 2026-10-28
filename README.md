@@ -6,6 +6,6 @@
 
 <div align="center">
   
-${\color{#9500ff}\text{　rmk wip.ㅤ﹕　isaac　/　ryland .}}$ 
+${\color{#9500ff}\text{﹕　isaac　/　district .　　it/its}}$ 
 <br>${\color{#9500ff}\text{ᴗ　№1 allbetter fan.}}$ [i.](https://rentry.co/onehat)　[ii.](https://rentry.co/pt-byf)　[iii.](https://architect.atabook.org/)
 </br>
